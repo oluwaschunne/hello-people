@@ -1,2 +1,4 @@
 # hello-people
-just mhie bro
+Im just a lonely boy
+lively out here all by him self
+got no one
